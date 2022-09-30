@@ -31,4 +31,4 @@ I'm open for any feedback or recommendations.
 
 ## Author
 - Twitter - [@KateSarant](https://www.twitter.com/KateSarant)
-- Linkedin - linkedin.com/in/aikaterini-sarantopoulou-4b05a51b5
+- Linkedin - www.linkedin.com/in/kate-sarant
